@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @prashantsapkota67
 - 👀 I’m interested in something
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on anything
+- 🤝 I’m looking to collaborate on anything
 - 📫 How to reach me N/A
 - 😄 Pronouns: Majesty/Sovereignty
 - ⚡ Fun fact: -.. --- / .. - / --- -. / -.-- --- ..- .-. / --- .-- -.
